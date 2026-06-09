@@ -1,1 +1,0 @@
-# DevelopersHub-AI-ML-Internship-Phase-2
